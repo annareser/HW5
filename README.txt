@@ -1,2 +1,0 @@
-Anna Reser
-Chicago Cubs
